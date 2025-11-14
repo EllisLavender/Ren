@@ -1,5 +1,4 @@
 # REadME'
-**Be respectful,ok? :)**
 - 
 INT: anyone!
 -
@@ -7,7 +6,8 @@ DNI: Dni if ur trans/homophonic, and disrespectful about people's identity/feeli
 -
 
 
-About me:
+About me: **BE respectful, ok..?? :)**
+-
 
 
 My name is Luck,you can call me anything depends on what character im using, I'm in a multifandom, and have kin/heavykin to lots of fictional characters , INFP
