@@ -13,7 +13,6 @@
 
 
  Learning Japanese   
-
 -
 .      . 
 just to remind you - I have social anxiety, ADHD, hypersensitivity, shy-secure, overthinking, selective mutism, insomia, limited WiFi time
